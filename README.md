@@ -1,2 +1,2 @@
-# HIVELINK-
-HIVELINK- Where people and businesses connect 
+# LINKUP-
+LINKUP- Where people and businesses connect 
